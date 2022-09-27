@@ -120,9 +120,3 @@ DC : https://discord.gg/3pn3cC9ww6
 
 Twitter : https://twitter.com/NuLink_
 
-— — — — — — — — — — — — — — — — — — —— — — — — — — — — — — — — — — — — — —
-
-Bizi İzləyin.
-
-[Telegram] (https://t.me/drtestnet)  [Youtube] (https://www.youtube.com/c/KhayalAll/videos) [Twitter] (https://twitter.com/xeyalall)
-
